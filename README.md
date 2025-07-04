@@ -19,4 +19,4 @@
 
 此外，合法平台通常会进行年龄验证并遵守相关法律，这不仅能保障你的隐私，也能确保你获得更好的观看体验。通过选择安全的资源平台，你可以避免不必要的麻烦，享受更清晰、更高清的影片内容。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/ss20250704/ss03 ）</span>
